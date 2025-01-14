@@ -15,6 +15,6 @@ Contatos:
 
 [![image](https://github.com/user-attachments/assets/e632c3e6-7042-444c-a8bb-61737278454e)](https://www.linkedin.com/in/ludmillabborelli/)
 [![image](https://github.com/user-attachments/assets/e42b0ca4-4d6a-4193-9d19-aea36e93e1ab)](https://ludbb.my.canva.site/)
-[![image](https://github.com/user-attachments/assets/5dca65c5-ea02-49b8-95eb-581a567054aa)](href="mailto:ludmilla.bborelli@gmail.com)
+[![image](https://github.com/user-attachments/assets/5dca65c5-ea02-49b8-95eb-581a567054aa)](mailto:ludmilla.bborelli@gmail.com)
 [![image](https://github.com/user-attachments/assets/245d4071-5c5b-437b-971a-6038eb776b0d)](https://w.app/BceFw3)
 
